@@ -20,7 +20,7 @@ We are continually expanding our programs to include modern educational techniqu
 
 - **Email:** contact@knowledgefountainschool.com
 - **Website:** [knowledgefountainschool.com](https://www.knowledgefountainschool.com)
-- **Location:** Uyo, Akwa Ibom State, Nigeria
+- **Location:** Uruan, Akwa Ibom State, Nigeria
 
 ## 😄 Pronouns
 

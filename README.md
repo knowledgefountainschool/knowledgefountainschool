@@ -19,7 +19,7 @@ We are continually expanding our programs to include modern educational techniqu
 ## 📫 Contact Us
 
 - **Email:** contact@knowledgefountainschool.com
-- **Website:** [www.knowledgefountainschool.edu.ng](https://www.knowledgefountainschool.edu.ng)
+- **Website:** [knowledgefountainschool.com](https://www.knowledgefountainschool.com)
 - **Location:** Uyo, Akwa Ibom State, Nigeria
 
 ## 😄 Pronouns
